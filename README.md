@@ -1,0 +1,1 @@
+# Scm222-0841-2025-Gloria-tarus-summary-of-the-first-six-topics
